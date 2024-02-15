@@ -1,1 +1,1 @@
-#political-spectrumStudy# political-specteum.
+#political-spectrumStudy# politics
